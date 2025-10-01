@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+🔭 I’m currently working on getting quotes from venues and budgetting for decorations, merchanidise, food, and activities.
+🌱 I’m currently learning how to organize budgets and use markdown!
+👯 I’m looking to collaborate on the Krispy Kreme sale!
+🤔 I’m looking for help with establishing a theme for the Issue Launch party -- DISCO!
+💬 Ask me about event planning and the issue launch.
+📫 How to reach me: tramonta@uoguelph.ca
+😄 Pronouns: she/her
